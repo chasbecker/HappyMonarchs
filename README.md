@@ -5,7 +5,7 @@ Five of the top 8 currently happiest countries are constitutional monarchies.
 Two were or are vestigal monarchies.
 One was ruled by nobles whose positions were eliminated in 1848.
 
-The majority of happiest countries are constitutiona monarchies.
+The majority of happiest countries are constitutional monarchies.
 Monarchs are largely ceremonial, but they serve a far more important function than "ruling".
 They are the non-partisan symbol of national identity.  They are responsible to the country
 and the people, but they do not have to campaign for votes or fear a vote of no confidence.  Not
